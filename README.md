@@ -1,3 +1,5 @@
-i spend way too much time playing geometry dash
+im not a real programmer
+i dont even code
+i play gd
 
-thats it
+im so not sigma
